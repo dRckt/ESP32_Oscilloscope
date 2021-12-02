@@ -1,2 +1,2 @@
 # ESP32_Oscilloscope
-Elliot pue la pisse
+Victor pue la pisse
